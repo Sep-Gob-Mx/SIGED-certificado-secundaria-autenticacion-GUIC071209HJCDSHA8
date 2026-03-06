@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GUIC071209HJCDSHA8
+GUIC071209HJCDSHA8
